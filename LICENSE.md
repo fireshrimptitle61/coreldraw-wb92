@@ -1,4 +1,4 @@
-# 
+# ultimate Affinity Photo para PC ferramentas é o melhor Affinity Photo para PC ferramentas com ferramentas de colaboração e simulação de fumaça. Seguro, confiável e otimizado para
 
 
 
